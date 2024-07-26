@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Anvar Mamedov
+- 👀 I’m interested in being a Penetration Teste
+- 🌱 I’m currently learning Python Programming Language and Everything i can learn about Cyber Security
+- 📫 How to reach me ... You can reach from my discord:@qaqa_style
+- 😄 Pronouns: he/him/nxptunx/theak-74
+- ⚡ Fun fact: (im still not 18 and no im not a skid)
